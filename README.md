@@ -18,4 +18,4 @@ eski sürümün üzerine kurulur, verileriniz kaybolmaz.
 bekler. Gün sonunda internete bağlanıp uygulamayı açmayı unutmayın.
 
 ## Sorun yaşarsanız
-Fahreddin — [telefon numaran]
+Fahreddin — [0546 805 4548]
